@@ -2,7 +2,8 @@
 Meme coin "Chak-Chak".
   
 # CHAK-CHAK
-![5442843923887287037](https://github.com/user-attachments/assets/35593d33-7120-4e43-88fd-a17b52f89e8f)
+![256x256](https://github.com/user-attachments/assets/a76057e4-e557-4c7d-a9bf-ca1a6cdd442b)
+
 
 </header>
 
